@@ -29,6 +29,7 @@
   + Masamune-kun's Revenge
   + 3D Kanojo
   + Gamers
+  + Shimoneta
   + Sankarea
   + Inuyashiki
   + Dororo
