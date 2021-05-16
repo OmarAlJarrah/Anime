@@ -21,18 +21,15 @@
   + Domestic Girlfriend (Romance, Life)
   + Re Life
   + So I Can't Play H
-  + Kiss X Sis
   + jaku-chara tomozaki-kun
   + Higehiro
   + Yamada-kun and the Seven Witches
   + The World God Only Knows
   + Masamune-kun's Revenge
   + 3D Kanojo
-  + Gamers
   + Shimoneta
   + Sankarea
   + Inuyashiki
-  + Dororo
   + Yona of the Dawn
   + 91 Days
 
@@ -42,5 +39,6 @@
   + Your Name (Romance, Piece of life, Supernatural)
   + Death Note
   + Erased
+  + Dororo
   + Prison School
   + A Silent Voice
