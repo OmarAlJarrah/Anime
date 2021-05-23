@@ -41,4 +41,5 @@
   + Erased
   + Dororo
   + Prison School
+  + Golden Boy
   + A Silent Voice
