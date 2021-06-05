@@ -15,23 +15,19 @@
   + Strike The Blood S5 (XXXX)
   + Chivalry of a Failed Knight S2 (XXXX)
   + Maoyu S2
+  + Yona of the Dawn S2
 
 
 ### To Watch
   + Domestic Girlfriend (Romance, Life)
-  + Re Life
   + So I Can't Play H
   + jaku-chara tomozaki-kun
   + Higehiro
-  + Yamada-kun and the Seven Witches
   + The World God Only Knows
   + Masamune-kun's Revenge
   + 3D Kanojo
-  + Shimoneta
   + Sankarea
   + Inuyashiki
-  + Yona of the Dawn
-  + 91 Days
 
 
 ### Watched, Finished & Loved
@@ -43,3 +39,5 @@
   + Prison School
   + Golden Boy
   + A Silent Voice
+  + 91 Days
+  + Shimoneta
