@@ -32,12 +32,12 @@
 
 ### Watched, Finished & Loved
   + Clannad & Clannad After Story (Romance, Sad)
-  + Your Name (Romance, Piece of life, Supernatural)
   + Death Note
   + Erased
   + Dororo
   + Prison School
   + Golden Boy
-  + A Silent Voice
   + 91 Days
   + Shimoneta
+  + Fate Heavens Feel (Seasons 1, 2 & 3)
+  
