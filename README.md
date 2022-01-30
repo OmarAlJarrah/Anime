@@ -31,13 +31,34 @@
 
 
 ### Watched, Finished & Loved
-  + Clannad & Clannad After Story (Romance, Sad)
+  + Clannad & Clannad After Story (Romance, Saddness Masterpiece)
   + Death Note
-  + Erased
-  + Dororo
-  + Prison School
-  + Golden Boy
-  + 91 Days
-  + Shimoneta
+  + Code Geass (On level of Death Note!)
+  + Erased (Drama, Supernatural, Intelegence)
+  + Dororo (Revenge, Action, Sad, Drama, Fantasy)
+  + Prison School (+18 Comedy)
+  + Megalo Box (Season 1 & 2, Drama, Action, Sport)
+  + Re:Zero
+  + Redo of the Healer (+18, Drama, Sad, Action, Revenge)
+  + Golden Boy (+16 Comedy)
+  + 91 Days (Revenge, Drama)
+  + Shimoneta (Ecchi, WTF)
   + Fate Heavens Feel (Seasons 1, 2 & 3)
+  + Just Because! (Drama, Romance, Sad)
+  + Getsuyoubi no Tawawa (Season 1 & 2, Ecchi)
+  + Hajime no Ippo: A New Challenger (Action, Drama, Sports, Classic)
+  + Great Teacher Onizuka (+16 Comedy, Classic)
+  + Nisekoi (Season 1 & 2, Comedy, Drama, Romance)
+  + Yahari Ore no Seishun Love Comedy wa Machigatteiru. Kan (Drama, Comedy, Romance, Sad, Deep)
+  + Mushoku Tensei (Isekai MASTERPIECE, Ecchi, Comedy, Action, Drama, Fantasy)
+  + Okusama ga Seitokaichou! (Ecchi, Comedy)
+  + Ishuzoku Reviewers (Fantasy, Almost Hentai, Comedy +18)
+  + Vinland Saga (Drama, Action)
+  + Mahoutsukai no Yome (Sad, Drama, Fantasy, Action)
+  + Your Name (Drama, Romance, Comedy, Supernatural)
+  + 86
+  + Youjo Senki (+18 Ideas, Action, Drama)
+  + Fullmetal Alchemist Brotherhood
+  + 3-gatsu no Lion (Season 1 & 2, Sad, Drama)
+  + 
   
