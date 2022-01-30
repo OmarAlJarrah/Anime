@@ -19,10 +19,8 @@
 
 
 ### To Watch
-  + Domestic Girlfriend (Romance, Life)
   + So I Can't Play H
   + jaku-chara tomozaki-kun
-  + Higehiro
   + The World God Only Knows
   + Masamune-kun's Revenge
   + 3D Kanojo
@@ -33,6 +31,9 @@
 ### Watched, Finished & Loved
   + Clannad & Clannad After Story (Romance, Saddness Masterpiece)
   + Death Note
+  + Higehiro (Drama)
+  + Domestic Girlfriend (Romance, Life, +18)
+  + No Game No Life (Season 1 & Movie)
   + Code Geass (On level of Death Note!)
   + Erased (Drama, Supernatural, Intelegence)
   + Dororo (Revenge, Action, Sad, Drama, Fantasy)
@@ -61,5 +62,4 @@
   + Fullmetal Alchemist Brotherhood
   + 3-gatsu no Lion (Season 1 & 2, Sad, Drama)
   + Golden Time (Sad, Romance, Comedy, Drama)
-  + 
   
