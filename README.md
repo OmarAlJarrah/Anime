@@ -60,5 +60,6 @@
   + Youjo Senki (+18 Ideas, Action, Drama)
   + Fullmetal Alchemist Brotherhood
   + 3-gatsu no Lion (Season 1 & 2, Sad, Drama)
+  + Golden Time (Sad, Romance, Comedy, Drama)
   + 
   
