@@ -24,6 +24,7 @@
   + The World God Only Knows
   + Masamune-kun's Revenge
   + 3D Kanojo
+  + Mr Robot (Syco, Drama, Tech)
   + Sankarea
   + Inuyashiki
 
