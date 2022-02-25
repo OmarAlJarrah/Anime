@@ -17,7 +17,7 @@
   + Maoyu S2
   + Yona of the Dawn S2
 
-
+[C. Great Sequence](https://codeforces.com/contest/1642/problem/C)
 ### To Watch
   + So I Can't Play H
   + jaku-chara tomozaki-kun
